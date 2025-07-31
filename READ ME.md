@@ -1,8 +1,8 @@
-## DNI IF UNDER 14.
+# DNI IF UNDER 14.
 ![N|Solid](https://i.ibb.co/67K2GRm7/IMG-5481.png)
 ## INTRO
 hiiii my name's kenna and i'm 16, i'm just some dummy idiot dogsquidgirl on the internet who loves some cartoon network and adult swim :3 i go by she/her and i'm disabled/chronically ill, neurodivergent and a tubie so please be patient with me about stuff :P (fakeclaimers dni) my special interests are breakcore and boomerang, cartoon network, toonami, adult swim and anything related to them. (fun fact, my sp/ins started when i was just 3, i would literally pull allnighters just sitting and watching boomerang LMAO)
-## DNI
+# DNI
 - under 14
 - proshippers
 - dream smp fans
@@ -12,7 +12,7 @@ hiiii my name's kenna and i'm 16, i'm just some dummy idiot dogsquidgirl on the 
 - transphobes
 - anti-self/yumeshipping
 thin ice: hazbin/helluva fans
-## BYI
+# BYI
 - i say "dawg" and "yo" a lot
 - i am VERY extroverted so don't be worried about interacting with me :)))
 - cartoon network is the only thing i talk about lmfao
@@ -21,7 +21,7 @@ thin ice: hazbin/helluva fans
 - i only use the /j and /lh tone tags
 - i don't roleplay, sorry
 - when i get really hyper and excited i make a ton of typos
-## Shows I like
+# Shows I like
 - 2 stupid dogs
 - adventure time
 - american dad 
@@ -93,7 +93,7 @@ thin ice: hazbin/helluva fans
 - venture bros
 - xavier: renegade angel 
 - yogi bear show
-## other hobbies i have
+# other hobbies i have
 - toy collecting
 - watching cartoons
 - making patch jackets, ita bags and pin lanyards
@@ -111,5 +111,5 @@ thin ice: hazbin/helluva fans
 - sleeping
 - drawing
 - fashion
-## if you finished reading this, have a moltar for your travels, thank you :)
+# if you finished reading this, have a moltar for your travels, thank you :)
 ![N|Solid](https://i.ibb.co/Kx3Mr2DJ/IMG-6092.webp)
